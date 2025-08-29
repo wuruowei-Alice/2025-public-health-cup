@@ -534,7 +534,7 @@
 
 **企劃書製作日期：** 2025年  
 **聯絡人：** 徐翊昌 0910355909  
-**電子郵件：** （可另行提供）  
+**電子郵件：** contact@publichealthcup.com 
 **官方網站：** （建置中）  
 **Facebook：** [2025年46屆全國公衛盃](https://www.facebook.com/profile.php?id=61579643293331)  
 **Instagram：** [@phcup_2025](https://www.instagram.com/phcup_2025/)  
